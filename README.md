@@ -1,0 +1,1 @@
+# Royal-Greenland-Digital-Transformation-Enterprise-Architecture-Assessment
